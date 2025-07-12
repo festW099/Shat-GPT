@@ -1,1 +1,1 @@
-![Elon Musk](https://media.giphy.com/media/5eFRL3jPLgbNj6iwPx/giphy.gif)
+![Elon Musk](https://media.tenor.com/bO0TI.gif)
